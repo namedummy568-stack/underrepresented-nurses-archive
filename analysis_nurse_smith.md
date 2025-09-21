@@ -1,0 +1,3 @@
+## Analysis of Nurse Smith's Contributions
+
+Nurse Sarah Smith, active in the early 20th century, made significant contributions to public health nursing, particularly in rural communities. Her innovative approaches to community outreach and patient education were instrumental in reducing infant mortality rates and improving sanitation practices in underserved areas. Despite facing systemic barriers as an African American woman, her dedication and leadership left a lasting impact on healthcare delivery models.
